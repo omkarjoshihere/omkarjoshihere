@@ -1,3 +1,6 @@
-Hey, I am Omkar Joshi.
-![3![360_F_278976749_aQvJhRjM07M1cTYjCq5pbcODIkyYefp5](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/0069daed-f936-462c-9eaa-b0d7697099a6)
-60_F_278976749_aQvJhRjM07M1cTYjCq5pbcODIkyYefp5](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/5e4ae37c-827e-4087-966a-db37e6823fe5)
+Hey, I am Omkar Joshi.💻🎧
+
+![360_F_278976749_aQvJhRjM07M1cTYjCq5pbcODIkyYefp5](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/6ada10a8-a3f0-46b9-8f2e-e8193ab79368)
+
+Living in Nashik(The Wine Capital of India). 
+I work as a Software Engineer with Bilingual skills of Japanese language. Basically I am a Weeb and fond of Technology. 

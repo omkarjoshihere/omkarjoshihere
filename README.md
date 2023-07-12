@@ -1,4 +1,5 @@
-![imp](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/a4cf4bce-5ec6-47d3-b854-b05f4d02873f)
+
+![hello](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/12dd4f45-72e3-46f0-aa2c-1d382e7ac809)
 
 Hey, I am Omkar Joshi.💻🎧
 

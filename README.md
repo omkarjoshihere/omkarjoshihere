@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @omkarjoshihere currently pursuing B.E in Computer Science
-- 👀 I’m interested in Web development, App development, DevOps and many more.
-- 🌱 I’m currently learning about the public learning and how to work for open source community
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-omkarjoshihere/omkarjoshihere is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hey, I am Omkar Joshi.
+![3![360_F_278976749_aQvJhRjM07M1cTYjCq5pbcODIkyYefp5](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/0069daed-f936-462c-9eaa-b0d7697099a6)
+60_F_278976749_aQvJhRjM07M1cTYjCq5pbcODIkyYefp5](https://github.com/omkarjoshihere/omkarjoshihere/assets/97440357/5e4ae37c-827e-4087-966a-db37e6823fe5)
